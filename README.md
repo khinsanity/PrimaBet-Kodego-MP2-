@@ -1,1 +1,1 @@
-# PrimaBet-Kodego-MP2-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=25&pause=1000&random=false&width=435&lines=Hi%2C+There!;I'm+Jorz+%7C+Kodego!;Quick+fox+jumps+nightly+above+wizard)](https://git.io/typing-svg)
